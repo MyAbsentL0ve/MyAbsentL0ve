@@ -1,8 +1,5 @@
 <p align = "center">
-	<img src = "https://komarev.com/ghpvc/?username=10kartik&style=plastic&color=732e48" alt = "ghosts"/>
-</p>
-
-
+	<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=love%20%E2%99%A1&extraCount=67062&color=8c4f68&labelColor=5f1d38&logo=lovee"/></a>  ·  ✦  ·  <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=envy%20%E2%99%A1&extraCount=68062&color=77001f&labelColor=2e191f&logo=lovee"/></a>
 
 
 
@@ -46,4 +43,3 @@ ${\textsf{\color{#5e0e23}✦────── . w2i . ──────✦}}$
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com/?font=VT323&size=35&duration=3500&pause=300&color=5e0e23&center=true&vCenter=true&width=500&lines=feel+free+to+interact+^^!" alt="Typing SVG" /></a>
   </div>
 </div>
-
