@@ -14,7 +14,7 @@
 
 ${\textsf{\color{#6f3f52}⊹₊˚‧︵‿₊୨ panchiko · ── ✦ ── · she / he / any  · ── ✦ ── ·   c + h freely · ── ✦ ── ·  sign. ata pls ୧₊‿︵‧˚₊⊹}}$
 
-${\textsf{\color{#5e0e23}✦────── . w2i . ──────✦}}$
+![Image](https://github.com/user-attachments/assets/9d647198-f321-479f-9cc7-266d85ba4ab7) ${\textsf{\color{#5e0e23}⊹₊˚‧︵‿₊୨ . w2i . ୧₊‿︵‧˚₊⊹}}$ ![Image](https://github.com/user-attachments/assets/9d647198-f321-479f-9cc7-266d85ba4ab7)
 
 <br>
 
