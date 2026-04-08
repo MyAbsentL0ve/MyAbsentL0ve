@@ -6,7 +6,7 @@
 <br>
 <div align="center">
 
-![image alt](https://github.com/DeadAndBr0ken/DeadAndBr0ken/blob/5c26cdb8aba497d2d8dc197703929bcc9e72e11a/vintage-black-and-white-lily-illustration-retro-floral-nostalgic-designs-isolated-on-transparent-background-png.png)
+![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/a55a06db716699c2d6111508dcc770e12c40d85a/44%20sin%20t%C3%ADtulo_20260408103948.png)
 
 
 
