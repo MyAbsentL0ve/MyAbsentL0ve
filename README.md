@@ -1,8 +1,9 @@
+<br>
 <p align = "center">
 	<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=love%20%E2%99%A1&extraCount=67062&color=8c4f68&labelColor=5f1d38&logo=lovee"/></a>  ·  ✦  ·  <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=envy%20%E2%99%A1&extraCount=68062&color=77001f&labelColor=2e191f&logo=lovee"/></a>
 
 
-
+<br>
 <div align="center">
 
 ![image alt](https://github.com/DeadAndBr0ken/DeadAndBr0ken/blob/5c26cdb8aba497d2d8dc197703929bcc9e72e11a/vintage-black-and-white-lily-illustration-retro-floral-nostalgic-designs-isolated-on-transparent-background-png.png)
@@ -14,7 +15,9 @@ ${\textsf{\color{#6f3f52}⊹₊˚‧︵‿₊୨ panchiko · ── ✦ ── �
 
 ${\textsf{\color{#5e0e23}✦────── . w2i . ──────✦}}$
 
+<br>
 
+![Image](https://github.com/user-attachments/assets/c522440e-cd4e-4ce7-80ea-a69f20d151fc)
 
 
 <br>
