@@ -1,8 +1,11 @@
+<div align="center">
+
 ![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/a27163371428107a987e0306025e6fa487d18a0a/20260410_151030.png)
 
 <p align = "center">
 	<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=love%20%E2%99%A1&extraCount=67522&color=521823&labelColor=a82b31"/></a>  ·  ✦  ·  <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=envy%20%E2%99%A1&extraCount=68062&color=77001f&labelColor=2e191f&logo=lovee"/></a>
 
+![Image](https://github.com/user-attachments/assets/bfe04dc1-1762-4413-8d45-20cd4916639f)
 
 <br>
 <div align="center">
@@ -47,5 +50,7 @@ ${\huge\textsf{\color{#a82b31}⊹₊˚‧︵‿₊୨ panchiko · ── ✦ ─
   <div align=center>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount+Grid+Double&weight=500&size=25&pause=2000&color=5E0E23&center=true&width=435&lines=%22...My+one+and+only...%22;%22...+Precious+%E2%99%A1...%22" alt="Typing SVG" /></a>
   </div>
+
+<div align="center">
 
 ![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/e539f540f1457ecfc53f38ba0f29650a1a52a882/20260410_151048.png)
