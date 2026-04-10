@@ -1,7 +1,7 @@
 ![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/a27163371428107a987e0306025e6fa487d18a0a/20260410_151030.png)
 
 <p align = "center">
-	<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=love%20%E2%99%A1&extraCount=67062&color=8c4f68&labelColor=5f1d38&logo=lovee"/></a>  ·  ✦  ·  <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=envy%20%E2%99%A1&extraCount=68062&color=77001f&labelColor=2e191f&logo=lovee"/></a>
+	<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=love%20%E2%99%A1&extraCount=67522&color=521823&labelColor=a82b31"/></a>  ·  ✦  ·  <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=envy%20%E2%99%A1&extraCount=68062&color=77001f&labelColor=2e191f&logo=lovee"/></a>
 
 
 <br>
@@ -12,7 +12,7 @@
 
 
 
-${\textsf{\color{#6f3f52}⊹₊˚‧︵‿₊୨ panchiko · ── ✦ ── · she / he / any  · ── ✦ ── ·   c + h freely · ── ✦ ── ·  sign. ata pls ୧₊‿︵‧˚₊⊹}}$
+${\huge\textsf{\color{#a82b31}⊹₊˚‧︵‿₊୨ panchiko · ── ✦ ── · she / he / any  · ── ✦ ── ·   c + h freely · ── ✦ ── ·  sign. ata pls ୧₊‿︵‧˚₊⊹}}$
 
 ![Image](https://github.com/user-attachments/assets/9d647198-f321-479f-9cc7-266d85ba4ab7) ${\textsf{\color{#5e0e23}⊹₊˚‧︵‿₊୨ . w2i . ୧₊‿︵‧˚₊⊹}}$ ![Image](https://github.com/user-attachments/assets/9d647198-f321-479f-9cc7-266d85ba4ab7)
 
