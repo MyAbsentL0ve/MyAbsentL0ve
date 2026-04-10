@@ -26,17 +26,16 @@ ${\huge\textsf{\color{#a82b31}⊹₊˚‧︵‿₊୨ panchiko · ── ✦ ─
 
 <br>
 <div align=center>
-✦ · ─── · <a href="https://ppanchiko.atabook.org/"><b>atabook</b></a> ✦ <a href="https://ppanchiko.straw.page"><b>strawpage</b></a> · ─── · ✦
+⊹₊˚‧︵‿₊୨ <a href="https://ppanchiko.atabook.org/"><b>atabook</b></a> ✦ <a href="https://ppanchiko.straw.page"><b>strawpage</b></a> ୧₊‿︵‧˚₊⊹
 </div>
 <br>
 
+![Image](https://github.com/user-attachments/assets/bfe04dc1-1762-4413-8d45-20cd4916639f)
 
 
 
 
 
-
-![Image](https://github.com/user-attachments/assets/15ad3810-9bbd-4f06-a2bc-7fe0bacdfc1a)
   
   
   
@@ -50,6 +49,12 @@ ${\huge\textsf{\color{#a82b31}⊹₊˚‧︵‿₊୨ panchiko · ── ✦ ─
   <div align=center>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount+Grid+Double&weight=500&size=25&pause=2000&color=5E0E23&center=true&width=435&lines=%22...My+one+and+only...%22;%22...+Precious+%E2%99%A1...%22" alt="Typing SVG" /></a>
   </div>
+
+<br>
+
+<br>
+
+![Image](https://github.com/user-attachments/assets/15ad3810-9bbd-4f06-a2bc-7fe0bacdfc1a)
 
 <div align="center">
 
