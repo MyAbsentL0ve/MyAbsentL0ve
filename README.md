@@ -33,7 +33,7 @@ ${\huge\textsf{\color{#a82b31}⊹₊˚‧︵‿₊୨ panchiko · ── ✦ ─
 
 
 
-
+![Image](https://github.com/user-attachments/assets/15ad3810-9bbd-4f06-a2bc-7fe0bacdfc1a)
   
   
   
