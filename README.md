@@ -7,7 +7,7 @@
 <br>
 <div align="center">
 
-![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/a27163371428107a987e0306025e6fa487d18a0a/20260410_150153.png)
+![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/56706c388580797ff2cf8395acdfc671c039c54d/20260410_155545.png)
 
 
 
