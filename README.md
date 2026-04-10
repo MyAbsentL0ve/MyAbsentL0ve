@@ -1,4 +1,4 @@
-![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/530366c0e0030081b243ebd47db5714f330a9ef6/20260408_100205.png)
+![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/a27163371428107a987e0306025e6fa487d18a0a/20260410_151030.png)
 
 <p align = "center">
 	<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=love%20%E2%99%A1&extraCount=67062&color=8c4f68&labelColor=5f1d38&logo=lovee"/></a>  ·  ✦  ·  <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=envy%20%E2%99%A1&extraCount=68062&color=77001f&labelColor=2e191f&logo=lovee"/></a>
