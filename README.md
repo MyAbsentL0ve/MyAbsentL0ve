@@ -4,7 +4,7 @@
 
 <p align = "center">
 
-<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=love%20%E2%99%A1&extraCount=67522&color=521823&labelColor=a82b31"/></a> ![Image](https://github.com/user-attachments/assets/c522440e-cd4e-4ce7-80ea-a69f20d151fc)  <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=envy%20%E2%99%A1&extraCount=68062&color=77001f&labelColor=2e191f&logo=lovee"/></a>
+⊹₊˚<a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=love%20%E2%99%A1&extraCount=67522&color=521823&labelColor=a82b31"/></a> ![Image](https://github.com/user-attachments/assets/c522440e-cd4e-4ce7-80ea-a69f20d151fc)  <a href="https://hits.sh/github.com/MyAbsentL0ve/"><img alt="Hits" src="https://hits.sh/github.com/MyAbsentL0ve.svg?label=envy%20%E2%99%A1&extraCount=68062&color=77001f&labelColor=2e191f&logo=lovee"/></a>˚₊⊹
 
 ![Image](https://github.com/user-attachments/assets/bfe04dc1-1762-4413-8d45-20cd4916639f)
 
