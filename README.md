@@ -11,7 +11,7 @@
 <br>
 <div align="center">
 
-![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/56706c388580797ff2cf8395acdfc671c039c54d/20260410_155545.png)
+![image alt](https://github.com/MyAbsentL0ve/DeadAndBr0ken/blob/ea7f023bc48c5be46658a5d97a1e96cfdc8ba2a8/20260411_141434.png)
 
 
 
