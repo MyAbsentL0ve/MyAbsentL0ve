@@ -26,7 +26,8 @@ ${\huge\textsf{\color{#a82b31}⊹₊˚‧︵‿₊୨ panchiko · ── ✦ ─
 
 <br>
 <div align=center>
-⊹₊˚‧︵‿₊୨ <a href="https://ppanchiko.atabook.org/"><b>atabook</b></a> ✦ <a href="https://ppanchiko.straw.page"><b>strawpage</b></a> ୧₊‿︵‧˚₊⊹
+
+  ${\textsf{\color{#5E0E23}⊹₊˚‧︵‿₊୨}}$ <a href="https://ppanchiko.atabook.org/"><b>atabook</b></a> ✦ <a href="https://ppanchiko.straw.page"><b>strawpage</b></a> ${\textsf{\color{#5E0E23}୧₊‿︵‧˚₊⊹}}$
 </div>
 <br>
 
