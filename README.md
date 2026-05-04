@@ -16,7 +16,7 @@
 
 
 
-${\huge\textsf{\color{#a82b31}⊹₊˚‧︵‿₊୨ panchiko · ── ✦ ── · she / he / any  · ── ✦ ── ·   c + h freely · ── ✦ ── ·  sign. ata pls ୧₊‿︵‧˚₊⊹}}$
+${\huge\textsf{\color{#a82b31}⊹₊˚‧︵‿₊୨ she / he / any  · ── ✦ ── ·   c + h freely · ── ✦ ── ·  sign. ata pls ୧₊‿︵‧˚₊⊹}}$
 
 ![Image](https://github.com/user-attachments/assets/9d647198-f321-479f-9cc7-266d85ba4ab7) ${\textsf{\color{#7d282c}⊹₊˚‧︵‿₊୨ . w2i . ୧₊‿︵‧˚₊⊹}}$ ![Image](https://github.com/user-attachments/assets/9d647198-f321-479f-9cc7-266d85ba4ab7)
 
